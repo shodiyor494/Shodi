@@ -1,0 +1,2 @@
+# Shodi
+hammaga omad
